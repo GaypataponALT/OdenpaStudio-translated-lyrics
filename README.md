@@ -1,5 +1,4 @@
 This is where you translate lyrics in the folders.
-The only albums or singles that we don't have are LOLICOM ろりろりかんぱにー and おでんぱ☆最終決戦 so if you have it then please rip the tracks and make scans of the booklet and send them here.
 Some folders may have a booklet scan with the lyrics and some folders may have text files but if not then please make sure to add in your booklet scans if you have the album or single,
 If you had translated a song then please upload it to the album or single folder.
 
@@ -48,6 +47,14 @@ C77落選記念CD.
 
 おでんぱ☆運動会.
 
+白い○人.
+
+おでんぱ☆最終決戦.
+
+LOLICOM～ろりろり★かんぱにー～.
+
+キャッチン☆こたつ.
+
 
 
 
@@ -60,8 +67,6 @@ MH メインヒロイン(仮).
 
 お☆んぱスタジオ.
 
-キャッチン☆こたつ.
-
 チキンナゲット（黴).
 
 リアル充実ごっこ.
@@ -69,12 +74,6 @@ MH メインヒロイン(仮).
 ロリの極み幼女。 ～ありがとう、バイ・スプリング・・・ダメ絶対!～.
 
 壁ドン☆.
-
-白い○人.
-
-おでんぱ☆最終決戦.
-
-LOLICOM～ろりろり★かんぱにー～.
 
 
 If you have lyrics or booklet scans then please upload it here!!
