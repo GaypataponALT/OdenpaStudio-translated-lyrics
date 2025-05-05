@@ -2,6 +2,7 @@ This is where you translate lyrics in the folders.
 Some folders may have a booklet scan with the lyrics and some folders may have text files but if not then please make sure to add in your booklet scans if you have the album or single,
 If you had translated a song then please upload it to the album or single folder.
 
+Join our discord server! https://discord.gg/shdHF7NHwW
 
 Lyrics/scan lists
 
